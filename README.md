@@ -12,4 +12,4 @@ Until then, Scratch on!
 
 Sincerely,
 
-- PaperMarioFan2022 March 11th, 2024 EST 10:20PM.
+PaperMarioFan2022 March 11th, 2024 EST 10:20PM.
