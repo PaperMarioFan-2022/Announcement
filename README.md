@@ -1,5 +1,3 @@
-# Announcement (Please read through this so that you can understand what's going on)
-
 <div align=center>
 <h2> (Update!) The Truth</h2>
 
