@@ -3,9 +3,9 @@
 
 (Wondering if this will help a certain somebody) (Just saying)
 
-Earlier this year, it looks like that Scratch for me was unblocked. HOWEVER, most parts of the websites (like imaging hosting, for example, one that I can't mention that **starts with a T and ends in an r**) are blocked (referring to any image hoster that is supported currently, like CubeUpload) by my admin's filter extension (forbidden word does not cause that to happen, trust me. I already tested that).
+Well, this is awkward... turns out that Scratch is now blocked for good at my school. No more using Chromebook for that, sadly.
 
-I will have alternatives to get passed the blocking of that and it won't be the end of the world for me, but for now, it will be staying like that on my school Chromebook. Unfortunantly.
+And there are no bypasses or alternatives to get around this, so if you guide me on how to get the website unblocked, don't. It won't work.
 
 Well, that's all
 Scratch on!
