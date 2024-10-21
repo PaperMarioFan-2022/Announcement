@@ -7,9 +7,6 @@ Well, this is awkward... turns out that Scratch is now blocked for good at my sc
 
 And there are no bypasses or alternatives to get around this, so if you guide me on how to get the website unblocked, don't. It won't work.
 
-Well, that's all
-Scratch on!
-
 Sincerely,
 
 PaperMarioFan2022 Aug 5th, 2024 EST 9:28AM
